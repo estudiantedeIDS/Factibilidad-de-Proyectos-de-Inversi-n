@@ -1,2 +1,2 @@
-# Factibilidad-de-Proyectos-de-Inversi-n
+# Factibilidad-de-Proyectos-de-Inversion
 Actividades de Factibilidad de Proyectos de Inversión
